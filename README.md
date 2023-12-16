@@ -1,0 +1,1 @@
+# QYFYYZ.githubfast.io
